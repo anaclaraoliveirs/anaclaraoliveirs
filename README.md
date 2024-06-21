@@ -10,6 +10,6 @@ Você pode entrar em contato comigo 📫
 
 00001105542877sp@al.educacao.sp.gov.br
 
-![](https://media.giphy.com/media/Nl9zy9HrEKShQdaViO/giphy.gif?cid=ecf05e47ay0c7qp8v3i10kvi9h82cqyfilyr4fyf9dl7jki8&ep=v1_gifs_search&rid=giphy.gif&ct=)
+![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMDZrZHJyYnMwY3V4NXN6eWp1bXE0dHFxcXhjdWJnaHVsd3R3M2JnbCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/USDLzEBaDObgWuWywy/giphy.gif)
 
 beijoo💟
