@@ -10,6 +10,6 @@ Você pode entrar em contato comigo 📫
 
 00001105542877sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/wheeeluv-twice-momo-gif-24274468)
+![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZnRpeHRhcTc0b3dkMng0N2N5M2Vicm00cmg0anZjMHR4aHo1bW96eiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/USDLzEBaDObgWuWywy/giphy.gif)
 
 beijoo💟
